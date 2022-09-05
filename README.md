@@ -7,3 +7,5 @@
 ![изображение](https://user-images.githubusercontent.com/70198995/188503721-ee88b7b2-b416-46d8-b19d-fbeee689b19f.png)
 
 ![изображение](https://user-images.githubusercontent.com/70198995/188503755-e0b4bdba-ca15-4b29-8548-d0888dc5b4ca.png)
+
+![изображение](https://user-images.githubusercontent.com/70198995/188503784-5185d2f2-4d8e-41a0-8082-35fa0e8a36c1.png)
