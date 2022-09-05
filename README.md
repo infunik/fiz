@@ -5,3 +5,5 @@
 ![изображение](https://user-images.githubusercontent.com/70198995/188503655-137cba5b-eeaf-4542-a0e2-df1453d15f9f.png)
 
 ![изображение](https://user-images.githubusercontent.com/70198995/188503721-ee88b7b2-b416-46d8-b19d-fbeee689b19f.png)
+
+![изображение](https://user-images.githubusercontent.com/70198995/188503755-e0b4bdba-ca15-4b29-8548-d0888dc5b4ca.png)
